@@ -1,1 +1,3 @@
-# nevergiveup
+# nevergiveup  
+Hello, everyone!
+Greetings from the Paradise.
